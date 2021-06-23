@@ -1,0 +1,1 @@
+Stroopwafel, (Dutch: “syrup waffle”) a popular Dutch treat similar to a cookie, featuring two thin wafflelike wafers with a sweet filling. Stroopwafel was first made in Gouda, Netherlands, possibly in the late 18th century.
